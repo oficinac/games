@@ -1,5 +1,9 @@
 # games
-Crie seu jogo
+Crie seu jogo!
+
+*******************Eros***********************
+
+https://scratch.mit.edu/projects/1225253177/fullscreen/
 
 *************Bernardo*************************
 
