@@ -1,9 +1,17 @@
 # games
 Crie seu jogo
 
->>>>>>>Sophie<<<<<<<<<<<<<
->>>>>>https://scratch.mit.edu/projects/1225241422/fullscreen/
->>>>>>
+*************Bernardo*************************
+
+https://scratch.mit.edu/projects/1225254601/fullscreen/
+
+************Letícia*******************
+
+https://scratch.mit.edu/projects/1225255183/fullscreen/
+
+***********Sophie*************
+https://scratch.mit.edu/projects/1225241422/fullscreen/
+
 
 
 rafael
