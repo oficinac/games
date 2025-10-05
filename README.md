@@ -1,9 +1,12 @@
 # games
 Crie seu jogo
 
-https://beinternetawesome.withgoogle.com/pt-br_br/interland
+>>>>>>>Sophie<<<<<<<<<<<<<
+>>>>>>https://scratch.mit.edu/projects/1225241422/fullscreen/
+>>>>>>
 
-rafael :]
+
+rafael
 https://scratch.mit.edu/projects/1095328510/fullscreen/ (ja era feito)
 
 https://scratch.mit.edu/projects/1224982755/fullscreen/ (feito para isso)
